@@ -1,2 +1,2 @@
 # jnewton1.github.io
-Jahmal Newton Resume
+Jahmal Newton's Resume
